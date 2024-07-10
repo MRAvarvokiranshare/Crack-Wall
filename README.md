@@ -67,7 +67,15 @@ https://github.com/esfelurm/Divar-Cracker
 
 
 
+https://github.com/MRAvarvokiranshare/Crack-Wall/assets/146922434/48b02260-f539-4f88-bf9c-0904421b66a5
 
+
+
+
+
+
+
+Control + Shift + m
 
 
 
